@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Eva Obšivanová
-2.
+2. Jakub Murin
 3.
 4.
