@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Eva Obšivanová
 2. Jakub Murin
 3. Andrea Žalobínová
-4.
+4. Jakub Vojtek
